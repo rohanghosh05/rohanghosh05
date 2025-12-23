@@ -35,6 +35,7 @@
 ## 🔗 Connect With Me
 - 💼 **LinkedIn:** [Rohan Ghosh](https://www.linkedin.com/in/rohan-ghosh-574496304)
 - 📸 **Instagram:** [@rohanghosh_05](https://www.instagram.com/rohanghosh_05)
+- 📧 **Email:** (rohanghosh.rg05@gmail.com)
 
 ---
 
